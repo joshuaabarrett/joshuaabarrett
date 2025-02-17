@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **joshuaabarrett98@gmail.com**
 
-- ⚡ Fun fact **I make electronic music, beats, and a big fan of nature and sustainability.**
+- ⚡ Fun fact **I make electronic music, beats, and also a big fan of nature and sustainability.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
